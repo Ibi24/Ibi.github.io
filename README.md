@@ -1,2 +1,0 @@
-# Ibi.github.io
-Bisnis
